@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mindcrunch4u
-- 👀 I’m interested in cooking and skateboarding.
-- 🌱 I’m currently learning to get a life.
+- 👀 I’m interested in skateboarding.
+- 🌱 I’m currently learning to explode.
 - 💞️ I’m looking to collaborate with whoever that needs me.
 - 📫 Call 9-1-1 for emergency.
 
